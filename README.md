@@ -1,2 +1,0 @@
-# IA_supinfo
-sépadelia
